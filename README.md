@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ur ENTP fwen :3 🇮🇩🇸🇬
+Ur ENTJ/P fwen :3 🇮🇩🇸🇬
 
 
 ## 🌐 Socials:
